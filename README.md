@@ -29,3 +29,14 @@ Em um momento de urgência, Whisker Warbler percebe a necessidade de transmitir 
 \- À meia-noite, precisamos nos reunir em Murderball para enfrentar esses invasores. Isso deve ser feito em honra ao reino e para demonstrar nossa força dentro do continente.
 
 \- Preparem suas armas e afiem suas garras, pois a batalha será intensa! A força de nossa unidade será nossa maior vantagem. Vamos mostrar a eles do que somos capazes!
+
+# Capítulo 3:
+Deste lado da cerca
+
+![image](https://github.com/user-attachments/assets/d6418e14-8ffb-46d6-a71a-b439c4182260)
+
+\- No distante campo de batalha, eu estava lá, apenas assistindo como um gato curioso na cerca. Você sabe, é a minha especialidade - ficar fora da briga e apenas aproveitar o espetáculo!
+
+\- Enquanto os guerreiros se socavam e se chutavam, eu assistia com uma expressão de "que p0## está acontecendo aqui?". Às vezes, um "c#r#lh!" escapava quando via algo particularmente insano acontecendo.
+
+\- Cada movimento era como um ato de circo, mas com mais sangue e menos palhaços. Eu até me peguei pensando em trazer um pouco de pipoca, mas isso seria demais até para mim.
