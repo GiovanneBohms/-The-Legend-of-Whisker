@@ -40,3 +40,14 @@ Deste lado da cerca
 \- Enquanto os guerreiros se socavam e se chutavam, eu assistia com uma expressão de "que p0## está acontecendo aqui?". Às vezes, um "c#r#lh!" escapava quando via algo particularmente insano acontecendo.
 
 \- Cada movimento era como um ato de circo, mas com mais sangue e menos palhaços. Eu até me peguei pensando em trazer um pouco de pipoca, mas isso seria demais até para mim.
+
+## Capítulo 4:
+Rumores de Traição e o Tédio da Paz
+
+Whisker observava o campo de batalha de perto, mas algo estava diferente. Não era a agitação usual da guerra, mas sim um tédio estranho que pairava sobre os guerreiros do reino. Após prolongados tempos de batalhas árduos, eles finalmente haviam alcançado a paz, mas agora essa paz parecia mais um fardo do que uma benção.
+
+Enquanto assistia aos guerreiros murmurando sobre as possibilidades monótonas da paz, Whisker não pôde deixar de notar os rumores sobre a possibilidade de o reino 3414 traí-los. Para alguns, essa possibilidade era uma esperança disfarçada — uma chance de trazer de volta um pouco da empolgação que a guerra trazia consigo.
+
+Mas havia algo mais sinistro no ar. Whisker Warbler ouviu histórias sobre uma doença estranha que afetava alguns soldados após longos períodos de paz. Um tipo de desconforto mental que os deixava inquietos e irritáveis, ansiosos pela adrenalina das batalhas passadas.
+
+Enquanto refletia sobre esses eventos, Whisker Warbler sabia que algo estava prestes a acontecer. A frágil paz que haviam alcançado estava ameaçada, não apenas pelo perigo de inimigos externos, mas também pelos demônios internos que assombravam os corações dos guerreiros. E ele estava determinado a descobrir a verdade por trás desses rumores antes que fosse tarde demais.
