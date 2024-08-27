@@ -154,3 +154,38 @@ As aparições do cavaleiro despertavam desconfiança e apreensão entre os habi
 ![image](https://github.com/user-attachments/assets/f7b9178b-9dc3-408b-9deb-cc2ffc7e640a)
 
 \- Você ainda não está pronto para contemplar a verdade.
+
+## Capítulo 11: A Cura Espiritual
+
+O cenário no Reino 3415 estava cada vez mais tumultuado, com o Knighter instigando conflitos por todo o território, mas sem causar fatalidades. Sua abordagem era como a de um predador brincando com sua presa, e havia momentos em que ele parecia estar em mais de cem lugares diferentes ao mesmo tempo.
+
+Espiões de 3413 observavam perplexos enquanto os habitantes de 3415 pareciam estar lutando contra algo invisível ou falando calmamente consigo mesmos. Eles retornaram apressados para sua terra natal para alertar seu rei: todos no Reino de Goresh pareciam possuídos e ansiosos para a batalha, desde os animais até os camponeses.
+
+O Rei 3413, envergonhado pela situação, tendo acidentalmente sujado seu próprio trono devido ao medo dos guerreiros de Goresh...
+
+Enquanto isso, Whisker se dirigia em direção ao centro do mapa e à guerra iminente, pensando:
+
+"A doença mental causada pela paz atingiu seu auge, até eu, que não tenho interesse em derramamento de sangue, fui afetado por isso..."
+
+Antes que Whisker pudesse concluir seu *pensamento*, o Knighter apareceu e expressou:
+
+\-Isso não é uma doença, Whisker! Isso é a cura!
+\-O gato, assustado, olhou para o lado e viu o cavaleiro, perguntando:
+
+*Whisker* - Você lê mentes?
+O Knighter respondeu:
+
+\- Se alguém em Goresh sabe, eu sei.
+Estranhamente, apesar de o Knighter parecer trazer problemas, todos começaram a se sentir seguros em sua presença, incluindo Whisker.
+
+*Whisker*: - Cura? O que você quer dizer com isso?
+
+*Knighter*: - Suas mentes estavam adormecidas, aprisionadas em uma falsa paz. Eu as despertei para a verdadeira natureza do mundo ao seu redor.
+
+*Whisker*: - Mas e as batalhas, os conflitos?
+
+*Knighter*: - Eles são necessários para o crescimento, para a evolução. A complacência apenas leva à estagnação. Você precisa enfrentar seus medos, suas sombras, para se tornar mais forte.
+
+*Knighter*: - Aliás, está quase na hora!
+
+Então, o Knighter olhou para a distante Ziguratte, parecendo conectado a uma fonte de serenidade interior.
