@@ -59,3 +59,15 @@ Antes da guerra, Whisker sentia uma mistura de antecipação e apreensão ao obs
 \- Parece que minhas funções de patrulha vão se tornar ainda mais interessantes agora, com os novos territórios sob o controle das alianças. Sempre disse que precisava de mais emoção na vida... Não há nada mais divertido do que qualquer coisa pulando das sombras em nossa direção! Ah, que alegria!
 
 \- Quando chegarmos ao coração do continente e a verdadeira guerra começar, todos os guerreiros estarão lá? Espero que sim, porque eu estarei, e eu sou apenas um gato.
+
+# Capítulo 6: A Patrulha
+
+Enquanto patrulhava a fronteira nas novas terras, Whisker se deparou com uma cena alarmante: inimigos estavam se aproximando rapidamente da torre de comunicação, um ponto vital para a segurança do reino. Seu coração acelerou enquanto ele era consumido por um conflito interno agonizante.
+
+Por um lado, a voz da autopreservação sussurrava em seus ouvidos, instigando-o a fugir e salvar sua própria vida. Ele sentia o peso do medo e da incerteza, a tentação de se distanciar do perigo iminente e garantir sua própria segurança.
+
+Por outro lado, uma voz mais forte ecoava em sua mente, a voz da responsabilidade e do dever. Ele sabia que, se fugisse, estaria abandonando aldeões inocentes à mercê dos inimigos, e a ideia de uma tragédia iminente era insuportável.
+
+Diante do dilema ético, Whisker, embora fosse apenas um mensageiro com poucas habilidades de combate, decidiu fazer o que parecia certo e avançou em direção à torre com uma mistura de esperança e medo. Ele chegou a tempo de enviar um pedido de socorro, mas mal teve tempo de celebrar sua pequena vitória.
+
+\- Sabe, a aventura não é tão divertida quando é você que está em perigo. Eu preferiria ler as histórias do que vivê-las. E sabe de uma coisa? Eu enchi a minha caixa de areia. Vou precisar que alguém a limpe depois disso.
