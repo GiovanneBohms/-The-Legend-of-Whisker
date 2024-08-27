@@ -140,3 +140,17 @@ O Knight riu da situação:
 \- Porque eu não estou aqui.
 
 \- Whisker saltou em direção ao knight, passando direto por ele como se o knight fosse intangível, e então ele desapareceu.
+
+
+
+## Capítulo 10: Mentes e Corações
+
+Após os eventos sombrios na fazenda, uma aura de inquietação pairava sobre o Reino 3415. Rumores sobre um cavaleiro enigmático começaram a se espalhar, ecoando pelas colinas, vales e florestas que compunham o vasto território do reino.
+
+Em cada região do reino, os habitantes relataram encontros com o cavaleiro. Nas florestas profundas, ele surgia das sombras, desencadeando incidentes surpreendentes que deixavam os residentes perplexos. Em vilarejos remotos, sua presença levava a eventos inesperados, mas não estava claro se eram benéficos ou prejudiciais.
+
+As aparições do cavaleiro despertavam desconfiança e apreensão entre os habitantes do reino. Ele olhava nos olhos de cada pessoa que encontrava, afirmando calmamente:
+
+![image](https://github.com/user-attachments/assets/f7b9178b-9dc3-408b-9deb-cc2ffc7e640a)
+
+\- Você ainda não está pronto para contemplar a verdade.
