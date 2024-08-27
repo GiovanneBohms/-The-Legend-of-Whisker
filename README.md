@@ -1,7 +1,7 @@
 # The Legend of Whisker
 
 ## Introdução
-`A Lenda de Whisker` é uma história que criei para entreter, por meio dos e-mails, meus amigos em Rise of Kingdoms. A história ainda está em aberto, e irei atualizando este README com o tempo à medida que a história se desenvolve. Devido a limitação de caracteres dos emails de Rise Of Kingdoms, os capítulos são curtos. Sinta-se à vontade para sugerir alternativas à história. 
+`A Lenda de Whisker` é uma história que criei para entreter, por meio dos e-mails, meus amigos em Rise of Kingdoms no reino de Goresh #3415, onde há 3 principais alianças: Dragons, Phoenix, Knight. A história ainda está em aberto, e irei atualizando este README com o tempo à medida que a história se desenvolve. Devido a limitação de caracteres dos emails de Rise Of Kingdoms, os capítulos são curtos. Sinta-se à vontade para sugerir alternativas à história. 
 
 OBS: As imagens inseridas nos emails é realizado por meio da ferramenta que criei que converte imagem.jpg em imagem.txt compatível com a formação de emails de ROK. 
 
