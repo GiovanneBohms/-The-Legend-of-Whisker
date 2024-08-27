@@ -85,3 +85,30 @@ Em meio a tanta sobrecarga mental e física, Whisker desmaia em uma das inúmera
 Naquele momento, o gato ainda não sabia, mas ele havia acabado de desbloquear uma habilidade: **☠ Premonição da Morte**
 
 Whisker acorda revigorado à noite em um ambiente macabro, mas nada mais o assusta. Ele se move pela floresta como se estivesse em casa, animais predadores se afastam e se escondem nas sombras. Whisker agora encara todos os abismos que o observam.
+
+## Capítulo 8: O Estranho da Floresta
+
+Whisker, em meio a uma jornada pela floresta escura, encontra uma trilha onde as marcas no chão e o espaçamento sugerem que é uma rota usada por soldados e coletores que se dirigem às partes centrais e externas do mapa. Durante a caminhada, o felino se depara com um misterioso knight, vestido com uma armadura negra. Ao notar a determinação de Whisker, o knight o adverte:
+
+\- Não siga por este caminho, há relatos de um pelotão de 3413 que passou por aqui, e eles frequentemente falham em distinguir civis de soldados.
+Ignorando o aviso, Whisker acelera o passo, ciente da importância das fazendas locais para seu reino. Admirando a coragem do gato, o knight decide acompanhá-lo, curioso para ver como essa improvável história se desenrolará.
+
+*Knight*: - Você claramente não é um soldado; 3415 está tão fraco que agora está recrutando os guardiões da natureza?
+
+*Whisker*: - O que é necessário para ser um lutador?
+
+*Knight*: - Você precisa ser capaz de...
+
+*Whisker*: - Ser humano? Ou pelo menos bípede?
+
+*Knight*: - Capaz de se defender, no mínimo.
+
+*Whisker*: - Bem, eu já passei por muita coisa e, no entanto, ainda estou aqui. Honestamente, não tenho certeza de como cheguei tão longe. Parece que a sorte tem sido minha única aliada.
+
+*Knight*: - A sorte pode ajudar, mas não é suficiente. Você precisa de habilidade e estratégia para vencer.
+
+*Whisker*: - Entendi. Talvez seja hora de aprender a lutar de verdade, embora eu não saiba por onde começar.
+
+*Knight*: - Estarei aqui para ajudar.
+
+Whisker observa que o knight parece ter muita experiência em combate e se pergunta de onde ele pode ser, Dragons? Phoenix? Knight? Ele se veste como um knight, então... Os Knights são figuras interessantes, gostam de fingir que não têm poder. Lembro-me bem de que, nos primeiros dias deste reino, eles venceram o rei das tribos.
