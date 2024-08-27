@@ -170,12 +170,15 @@ Enquanto isso, Whisker se dirigia em direção ao centro do mapa e à guerra imi
 Antes que Whisker pudesse concluir seu *pensamento*, o Knighter apareceu e expressou:
 
 \-Isso não é uma doença, Whisker! Isso é a cura!
+
 \-O gato, assustado, olhou para o lado e viu o cavaleiro, perguntando:
 
 *Whisker* - Você lê mentes?
+
 O Knighter respondeu:
 
 \- Se alguém em Goresh sabe, eu sei.
+
 Estranhamente, apesar de o Knighter parecer trazer problemas, todos começaram a se sentir seguros em sua presença, incluindo Whisker.
 
 *Whisker*: - Cura? O que você quer dizer com isso?
@@ -184,7 +187,7 @@ Estranhamente, apesar de o Knighter parecer trazer problemas, todos começaram a
 
 *Whisker*: - Mas e as batalhas, os conflitos?
 
-*Knighter*: - Eles são necessários para o crescimento, para a evolução. A complacência apenas leva à estagnação. Você precisa enfrentar seus medos, suas sombras, para se tornar mais forte.
+*Knighter*: - Elas são necessárias para o crescimento, para a evolução. A complacência apenas leva à estagnação. Você precisa enfrentar seus medos, suas sombras, para se tornar mais forte.
 
 *Knighter*: - Aliás, está quase na hora!
 
