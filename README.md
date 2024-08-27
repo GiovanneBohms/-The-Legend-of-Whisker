@@ -192,3 +192,6 @@ Estranhamente, apesar de o Knighter parecer trazer problemas, todos começaram a
 *Knighter*: - Aliás, está quase na hora!
 
 Então, o Knighter olhou para a distante Ziguratte, parecendo conectado a uma fonte de serenidade interior.
+
+![image](https://github.com/user-attachments/assets/70070dbb-416e-49ef-b244-fefe0b9fee9a)
+
