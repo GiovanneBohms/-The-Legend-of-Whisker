@@ -71,3 +71,17 @@ Por outro lado, uma voz mais forte ecoava em sua mente, a voz da responsabilidad
 Diante do dilema ético, Whisker, embora fosse apenas um mensageiro com poucas habilidades de combate, decidiu fazer o que parecia certo e avançou em direção à torre com uma mistura de esperança e medo. Ele chegou a tempo de enviar um pedido de socorro, mas mal teve tempo de celebrar sua pequena vitória.
 
 \- Sabe, a aventura não é tão divertida quando é você que está em perigo. Eu preferiria ler as histórias do que vivê-las. E sabe de uma coisa? Eu enchi a minha caixa de areia. Vou precisar que alguém a limpe depois disso.
+
+## Capítulo 7: A Intenção Maliciosa
+
+Whisker se encontra em um momento de profunda reflexão, digerindo as emoções vividas na torre. Ele se surpreende ao agir em favor de estranhos, colocando-os acima de sua própria segurança. Questiona por que é o único a sentir medo em meio à guerra, enquanto seus camaradas parecem cada vez mais empolgados com os confrontos. Sentindo vergonha de sua hesitação, ele carrega o peso da responsabilidade em seus ombros.
+
+De repente, um arrepio percorre seu corpo como se um raio tivesse acabado de atingi-lo, e um sentimento de inquietação o domina. A atmosfera se torna sombria e assustadora, o céu se encobre, e tudo parece desacelerar. Instintivamente, Whisker salta para desviar, apenas para perceber que uma flecha havia acabado de passar exatamente onde ele estava. Um inimigo distante, frustrado com Whisker, que parecia sabotar os planos inimigos em cada encontro, havia acabado de tentar assassiná-lo.
+
+Em choque pelo ataque inesperado, ele corre em desespero pela paisagem escura e ameaçadora. Seu coração dispara enquanto seus instintos de sobrevivência entram em sobrecarga, fazendo-o correr sem rumo. Cada canto escuro parece esconder uma nova ameaça, cada sombra uma possível emboscada. Seu corpo, tenso e formigando, responde aos estímulos do ambiente hostil, cada músculo rígido e alerta.
+
+Em meio a tanta sobrecarga mental e física, Whisker desmaia em uma das inúmeras sombras da floresta negra. Horas se passam, e as folhas cobrem seu corpo, tornando-o completamente invisível aos perigos daquele ambiente.
+
+Naquele momento, o gato ainda não sabia, mas ele havia acabado de desbloquear uma habilidade: **☠ Premonição da Morte**
+
+Whisker acorda revigorado à noite em um ambiente macabro, mas nada mais o assusta. Ele se move pela floresta como se estivesse em casa, animais predadores se afastam e se escondem nas sombras. Whisker agora encara todos os abismos que o observam.
