@@ -112,3 +112,31 @@ Ignorando o aviso, Whisker acelera o passo, ciente da importância das fazendas 
 *Knight*: - Estarei aqui para ajudar.
 
 Whisker observa que o knight parece ter muita experiência em combate e se pergunta de onde ele pode ser, Dragons? Phoenix? Knight? Ele se veste como um knight, então... Os Knights são figuras interessantes, gostam de fingir que não têm poder. Lembro-me bem de que, nos primeiros dias deste reino, eles venceram o rei das tribos.
+
+## Capítulo 9: As Fazendas
+
+O cheiro de fumaça e carniça era forte, e Whisker estava aterrorizado com o que via—como poderia haver tanta crueldade e covardia em um só lugar? Ele procurou por sobreviventes, mas não encontrou ninguém vivo. Enquanto isso, o knight observava as reações do gato enquanto Whisker examinava a destruição.
+
+Então, um arrepio percorreu o corpo de Whisker como um raio, e o gato saltou a tempo de evitar uma espada que visava decapitá-lo. À medida que se distanciava, encontrou-se frente a frente com cinco guerreiros de 3413, junto com o knight.
+
+*Whisker*: - Uma emboscada? Sério?
+
+*Knight*: - Você não é um gato comum.
+
+Whisker ignorou as probabilidades desfavoráveis e se entregou aos seus instintos felinos. Com uma agilidade surpreendente, ele se lançou em direção ao primeiro soldado, agarrando seu pescoço e tentando cortar sua artéria com dentes e garras. Antes que o soldado pudesse reagir, Whisker saltou para longe. No exato momento, a premonição sinistra o alertou, fazendo com que ele se esquivasse justamente quando o soldado ao seu lado tentou atacar, atingindo fatalmente seu próprio companheiro. Esse padrão de sorte continuou enquanto Whisker avançava, desviando habilidosamente dos ataques inimigos e usando sua própria sorte para derrotar os soldados restantes. No final, ele permaneceu ileso enquanto seus oponentes caíam um por um, vítimas de sua sorte inexplicável, porém eficaz.
+
+Whisker olhou para o knight e declarou: - Agora, só você resta.
+
+O Knight riu da situação:
+
+\- Isso não é sorte, você é um usuário da **☠ premonição da morte** 
+
+\- Eu disse que iria ajudar.
+
+\- Estou aqui apenas para fazer você entender qual é a sua força.
+
+\- E além disso, você não conseguiria usar isso em mim.
+
+\- Porque eu não estou aqui.
+
+\- Whisker saltou em direção ao knight, passando direto por ele como se o knight fosse intangível, e então ele desapareceu.
